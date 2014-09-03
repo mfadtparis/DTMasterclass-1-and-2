@@ -18,4 +18,4 @@ I am a industrial designer from the Netherlands specializing in the design of el
 
 I also give workshops, exhibitions and demonstartions of my machines, and sometimes (but quite rarely) i work for artists when they need something they cannot make themselves.
 
-If you need to contact me you can find my email address here.
+http://gieskes.nl/
